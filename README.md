@@ -2,5 +2,3 @@
 
 
 
-![1000004251](https://github.com/user-attachments/assets/6333433d-b921-4a8d-abeb-5e2328392387)
-
